@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TGamerxd
+- 👀 I’m interested in games
+- 🌱 I’m currently learning coding and all that stuff
